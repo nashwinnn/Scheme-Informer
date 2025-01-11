@@ -1,2 +1,3 @@
 # Scheme-Informer
-Ashwini kumar Giri
+Ashwini kumar Giri Aka Coder Jack 
+Follow 
